@@ -7,6 +7,8 @@ I'm 14 and learning code give me sympathy 🥺🙏
 - Breathing air 
 - going Boom! Boom! Boom!
 
+
+
 ![Spookakra's GitHub stats](https://github-readme-stats.vercel.app/api?username=Spookakra&show_icons=true&theme=radical)
 
 
