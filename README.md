@@ -1,5 +1,5 @@
-### I don't know what i'm doing, im new to the whole 'Cool Kids Club'.
-I'm 14 and learning code give me sympathy 🥺🙏
+### I don't know what i'm doing.
+copy and paste professional
 
 #### My hobbies and interest include:
 - Anime 
