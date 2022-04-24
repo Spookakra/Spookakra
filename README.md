@@ -1,10 +1,14 @@
-### I don't know what i'm doing.
-copy and paste professional
+### copy and paste professional
+I don't know what i'm doing 
+
 
 #### My hobbies and interest include:
 - Anime 
 - Long walks on the beach
 - Breathing air 
+- copying
+- pasting
+- making bad "references"
 - going Boom! Boom! Boom!
 
 
